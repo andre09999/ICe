@@ -1,1 +1,0 @@
-# Projeto Igreja ICE redencao
